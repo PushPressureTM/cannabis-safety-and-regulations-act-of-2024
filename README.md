@@ -1,4 +1,4 @@
-This Cannabis bill is offered freely to the public to make use of. 
+This Cannabis decriminalization and optimization of industry bill is offered freely to the public to make use of.
 
 I suggest doing the following things:
 ------------------------------------------
